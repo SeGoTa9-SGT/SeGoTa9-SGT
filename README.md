@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @SeGoTa9 i love learn about programation and machine learning. 
